@@ -47,7 +47,9 @@ Avoids voice chat questions like he avoids actual coding.
 > **Streamable Proof:** [https://streamable.com/5l6lur](https://streamable.com/5l6lur) (caught in 480p 😭)
 
 ---
-
+### heres his pfp incase he decides to change it 
+![img8](pfp.png)
+---
 **Summary:**  
 Trixy is what happens when Google, GitHub, and delusion collide. No rep, no skills, just chilling and VSCode open for no reason.
 Don't go to him for any backends, gs, etc. Everything he claims to do is either chatgpt or someones publicly available work.
