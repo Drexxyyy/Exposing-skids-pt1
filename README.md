@@ -6,6 +6,8 @@
 # Answering gibberish questions that make no sense 😭
 ![img2](2.png)
 
+# Admitting it?
+![img3](admittingtopasting.png)
 
 ## video proof
 avoiding questions in vc after multiple times of just being weird and ignoring us for his "gf"...
